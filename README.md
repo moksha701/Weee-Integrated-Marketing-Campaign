@@ -1,4 +1,4 @@
-# Ghar Ka Swad. Delivered. — Weee! Integrated Marketing Campaign
+# Taste of Home, Delivered. — Weee! Integrated Marketing Campaign
 
 ## 📌 Project Overview
 
